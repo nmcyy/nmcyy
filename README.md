@@ -1,16 +1,21 @@
-## Hi there 👋
+100款禁用软件app大全免费下载
 
-<!--
-**nmcyy/nmcyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ 即便不进行评审，塔克米也知道自己已经输了！
+
+    自己的柠檬雪藏蛋糕，与刘昴星的特制五仁月饼之间，还是有着本质上的差距的。
+
+    “八进四第四场，胜者，刘昴星！”总帅在巨大的卷轴上，写下了刘昴星的名字。
+
+    “没错，虽然塔克米的‘柠檬雪藏蛋糕’也很经典，但果然还是‘特制五仁’月饼，给我留下的印象更深！”
+
+    “不只是印象，吃过之后我现在就想要回家，陪家人一起过节了啊……”
+
+    “的确也没有几天就是中秋节，不知道之后可不可以向刘昴星同学订购些月饼，我后面也没有作为评委的项目，应该不算是索要贿赂吧？”
+
+    “这么说起来的话，我也……”
+
+    几名评委已经在商量着，之后要找刘昴星预定一批“特制五仁月饼”了。
